@@ -9,3 +9,4 @@
 LOL, CSGO, NS(加好友哇🤩 )
 
 never give up ~
+![visitors](https://visitor-badge.glitch.me/badge?page_id=Riunshow) <br>
